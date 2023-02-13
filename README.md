@@ -1,1 +1,1 @@
-Hello, just a student here trying to upn his skills
+Hello, just a student here trying to up his skills
